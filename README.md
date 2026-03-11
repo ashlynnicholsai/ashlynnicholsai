@@ -23,4 +23,4 @@ A structured approach for evaluating AI outputs based on clarity, usefulness, to
 
 ## Contact
 LinkedIn: https://www.linkedin.com/in/ashlyn-nichols2025/
-Email: ashlyn.nichols@icloud.com
+Email: ashlyn.nichols26@gmail.com
